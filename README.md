@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @chris-12-damaris
+- 👋 Hi, I’m @christina
 - 👀 I’m interested in Exploring new technologies
 - 🌱 I’m currently learning my bachelor's 
 - 💞️ I’m looking to collaborate on projects 
