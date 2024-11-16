@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects 
 - 📫  reach me in christinadamaris.2401029@srec.ac.in
 - 😄 Pronouns: she
-- ⚡ Fun fact: Bees can fly higher than mount Everest
+  
 
 <!---
 chris-12-damaris/chris-12-damaris is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
