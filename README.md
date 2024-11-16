@@ -2,7 +2,7 @@
 - 👀 I’m interested in Exploring new technologies
 - 🌱 I’m currently learning my bachelor's 
 - 💞️ I’m looking to collaborate on projects 
-- 📫  reach me in linkedin "Christina Damaris"
+- 📫  reach me in christinadamaris.2401029@srec.ac.in
 - 😄 Pronouns: she
 - ⚡ Fun fact: Bees can fly higher than mount Everest
 
