@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @chris-12-damaris
 - 👀 I’m interested in Exploring new technologies
 - 🌱 I’m currently learning my bachelor's 
-- 💞️ I’m looking to collaborate on..
+- 💞️ I’m looking to collaborate on projects 
 - 📫  reach me in linkedin "Christina Damaris"
-- 😄 Pronouns: ...
+- 😄 Pronouns: she
 - ⚡ Fun fact: Bees can fly higher than mount Everest
 
 <!---
